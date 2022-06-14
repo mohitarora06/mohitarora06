@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+🔭 I am (Mohit Arora)[https://www.linkedin.com/in/mohitarora06]
+🌱 I'm currently working as a Senior Cloud Engineer at (RBC)[https://www.rbcroyalbank.com/personal.html]
+
