@@ -25,4 +25,4 @@ Here are some ideas to get you started:
 
 📫 You can reach me at mohitarora06@hotmail.com
 
-⚡ I love to play Overwatch and read fiction books. Currenlty growing few vegetables in my garden. 
+⚡ I love to play Overwatch and read fiction books. Need good suggestions for the next series 🙏
