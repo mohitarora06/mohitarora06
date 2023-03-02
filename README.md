@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 🔭 I am [Mohit Arora](https://www.linkedin.com/in/mohitarora06)
 
-😎 [My Website](aroramohit.dev)
+😎 [My Website](https://aroramohit.dev/)
 
 🌱 I'm currently working as a Senior Cloud Engineer at [RBC](https://www.rbcroyalbank.com/personal.html)
 
